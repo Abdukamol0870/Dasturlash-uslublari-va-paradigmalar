@@ -1,0 +1,1 @@
+# Dasturlash-uslublari-va-paradigmalar
